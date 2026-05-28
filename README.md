@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://taveeshsharma.com/assets/pdf/Taveesh_CV.pdf](https://taveeshsharma.com/assets/pdf/Taveesh_CV.pdf)
 
-- ⚡ Fun fact **I play piano and run enough to call myself a runner.**
+- ⚡ Fun fact: **I play piano and run enough to call myself a runner.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
